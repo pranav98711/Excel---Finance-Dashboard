@@ -12,4 +12,4 @@ Built this in my free time—just some solid **Excel skills** at work. If you kn
 
 📥 **Download & explore**
 
-No fluff—just open it up, and you’ll see. 🚀
+Just open it up, and you’ll see. 🚀
